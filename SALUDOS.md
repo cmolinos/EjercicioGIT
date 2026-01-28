@@ -2,11 +2,8 @@
 1. Soy Clara Molinos
 2. 
 3. Hola, soy Abel Saz :)
-4. 
-5. soy Nayely 
-3. 
 4. Soy Angela Grimal
-5. 
+5. soy Nayely 
 6. 
 7. Soy Manuel &#x1F44B
 8. 
