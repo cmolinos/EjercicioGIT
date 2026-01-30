@@ -1,6 +1,6 @@
 Hola aqui vamos a ir poniendo nuestros nombres segun vayamos accediendo a este fichero:
 1. Soy Clara Molinos
-2. 
+2. Soy Carlos Garcia
 3. 
 4. 
 5. 
