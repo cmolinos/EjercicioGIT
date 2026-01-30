@@ -5,31 +5,31 @@
 4. 
 5. 
 2. 
-3. Hola, soy Abel Saz :)
-4. Soy Angela Grimal
-5. soy Nayely 
+3. 
+4. 
+5. 
 6. 
-7. Soy Manuel &#x1F44B
+7. 
 8. 
 9. 
 10. 
-11. Soy Diego Plaza
-12. Soy Maria Visus :) hola, mundo!! 
-13.  Soy Alex
-14.Ruben Esteban 
+11. 
+12. 
+13.  
+14. 
 15. 
-16. Soy Eirene Boatemaa Reynolds
+16. 
 17. 
-18. Alejandro Molina
-17. Soy Clint Orozco
 18. 
-19. linea dior
+17. 
+18. 
+19. 
 20. 
-21. Johann
+21. 
 22. 
 23. 
 24. 
 25. 
 26. 
 27. 
-28. Soy Angel y no se cual es mi numero
+28. 
